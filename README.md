@@ -8,6 +8,8 @@ no idea what to put here i have it only for poneytown so HIII call me whatever y
 
 >often nonverb or just restricted to party chat
 
+>SORRY IF I WONT ANSWER ON WHISPERS I HATE USING THEM
+
 >I DONT USE SOCIALS AT ALL SO DONT ASK ME ABT THEM
 
 .✦ ݁˖°｡‧ 𓆝 𓆟 𓆞 ·｡°˖✦.
